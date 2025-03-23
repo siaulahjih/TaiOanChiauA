@@ -64,7 +64,7 @@ Niau-thâu-chiáu, lí sī-m̄-sī teh chhōe a-ko͘-á
 
 古早古早，有兄嫂細姑兩ê人，個性真bā，感情chiâⁿ好，厝內大細項tāi-chì lóng真有參詳，雙出雙入，是厝邊隔壁欣羨o-ló ê好樣。
 
-有一年春天，新筍tăⁿ出，姑嫂雙人to̍h相招boeh去社頂附近山區竹á林挖幼筍，bô-gî-gō͘ gū-tio̍h大雨，到kah暗暝兩人lóng無轉--來，厝內ê人非常tio̍h急，to̍h派人上山四界走chhōe，chhōe真久lóng chhōe無in ê腳跡，最後chhōe到一欉茄苳樹腳，kan-nā聽見兩隻鳥á tī樹á頂hia leh háu 。講mā奇怪，in tau ê人轉來到厝裡了後，猶原聽tio̍h hit兩隻鳥á「ko͘~ ko͘~」háu無停，ta̍k工ùi boeh-àm-á一直háu kah天光。因為姑嫂兩人一去無回頭，所以厝內ê人nā聽tio̍h「ko͘~ ko͘~」ê叫聲，to̍h想tio̍h兄嫂細姑in兩人，mā因為chit種鳥á ê叫聲「ko͘~ ko͘~」kài-sêng leh叫阿姑á~ 阿姑á--leh，所以ta̍k ê認為有可能是姑嫂兩人ê化身，所以tī墾丁所在，貓頭鳥有「姑嫂鳥」ê稱號。
+有一年春天，新筍tăⁿ出，姑嫂雙人to̍h相招boeh去社頂附近山區竹á林挖幼筍，bô-gî-gō͘ gū-tio̍h大雨，到kah暗暝兩人lóng無轉--來，厝內ê人非常tio̍h急，to̍h派人上山四界走chhōe，chhōe真久lóng chhōe無in ê腳跡，最後chhōe到一欉茄苳樹腳，kan-nā聽見兩隻鳥仔tī樹á頂hia leh háu 。講mā奇怪，in tau ê人轉來到厝裡了後，猶原聽tio̍h hit兩隻鳥仔「ko͘~ ko͘~」háu無停，ta̍k工ùi boeh-àm-á一直háu kah天光。因為姑嫂兩人一去無回頭，所以厝內ê人nā聽tio̍h「ko͘~ ko͘~」ê叫聲，to̍h想tio̍h兄嫂細姑in兩人，mā因為chit種鳥仔ê叫聲「ko͘~ ko͘~」kài-sêng leh叫阿姑á~ 阿姑á--leh，所以ta̍k ê認為有可能是姑嫂兩人ê化身，所以tī墾丁所在，貓頭鳥有「姑嫂鳥」ê稱號。
 
 
 

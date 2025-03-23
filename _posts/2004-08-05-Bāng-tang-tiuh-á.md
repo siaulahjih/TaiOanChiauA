@@ -25,7 +25,7 @@ toc: true
 
 Bāng-tang to̍h是『鷦鶯』（Prinia inornata），因為伊ê尾溜時常tiuh--leh tiuh--leh，所以ka號做bāng-tang-tiuh-á。 
 
-Bāng-tang-tiuh-á真gâu做siū，咬芒草、hm̂-á、蜘蛛絲織布袋形ê鳥á-siū，所以有人ka號做布袋鳥。
+Bāng-tang-tiuh-á真gâu做siū，咬芒草、hm̂-á、蜘蛛絲織布袋形ê鳥仔-siū，所以有人ka號做布袋鳥。
 
 Bāng-tang-tiuh-á，Pò͘-tē-chiáu，kài有庄腳在地味，時常活動tī菅芒草phō內，不管時尾khiàu-khiàu sìm--leh sìm--leh，動作活跳古錐無時閒。
 

@@ -43,14 +43,14 @@ toc: true
 
 Ko͘-put-lī-chiang，經過Bunun酋長kap長老參詳會議，決定boeh拜託動物來tàu-saⁿ-kāng，其中siāng-kài重要ê khang-khòe to̍h是引火種轉來部落，chiah有才調hō͘族人繼續活命--落-去。頭起先拜託蟾蜍大--ê泅水到對岸ê卓社大山boeh取火種，蟾蜍大--ê提tio̍h火種to̍h趕緊跳落去山坑á水--裡，火種隨時hoa--去，蟾蜍大--ê無達成任務，感覺chiâⁿ iàn-khì，soah bih tiàm水內m̄敢見人；koh來有niáu鼠、獐á、鹿á、山豬…lóng boeh來tàu幫忙試khòaⁿ-māi，可是lóng無才調liáu過hit條有水ê坑溝á，ta̍k ê人lóng非常失望，m̄知影boeh án-chóaⁿ chiah好？
 
-突然間，半空中飛來1隻鳥á：「Hō͘我來試khòaⁿ-māi--leh kám ē-sái--tit？」
+突然間，半空中飛來1隻鳥仔：「Hō͘我來試khòaⁿ-māi--leh kám ē-sái--tit？」
 
 「你--ō͘？Chiah-nī細隻，chiah-nī幼秀，kám有法度擔當chit-ê任務？Hiah-nī chē ê朋友兄弟lóng來tàu腳手，lóng無伊法，你是boeh用siáⁿ-mih步數來完成chit-ê khang-khòe--leh？」
 
 「Hō͘我試khòaⁿ-māi--leh-lah！憑我ê熱誠kap勇氣，hō͘我來試khòaⁿ-māi--leh-lah！」
 
 「好！既然ta̍k-ê lóng無法度，to̍h拜託你試khòaⁿ-māi--leh？」酋長án-ne回答，ta̍k-ê lóng知影che是不得已--ê。
-Chit隻鳥á叫做Qepis，伊是1隻真特別ê鳥á，生做chiâⁿ súi，chiâⁿ幼秀，伊既然答應人boeh提火種轉來hō͘ ta̍k-ê煮食、烘火，伊to̍h chiâⁿ勇敢飛過坑溝á到卓社大山，用伊ê嘴pe咬1支燒hōm-hōm ê火種，無khà欣賞山裡ê súi光景，kan-nā一直piàⁿ命飛，看ē-tàng khah緊飛轉去Bunun ê部落，解救hiah-nī chē ê性命--bô？
+Chit隻鳥仔叫做Qepis，伊是1隻真特別ê鳥仔，生做chiâⁿ súi，chiâⁿ幼秀，伊既然答應人boeh提火種轉來hō͘ ta̍k-ê煮食、烘火，伊to̍h chiâⁿ勇敢飛過坑溝á到卓社大山，用伊ê嘴pe咬1支燒hōm-hōm ê火種，無khà欣賞山裡ê súi光景，kan-nā一直piàⁿ命飛，看ē-tàng khah緊飛轉去Bunun ê部落，解救hiah-nī chē ê性命--bô？
 
 Qepis ná飛風ná透，風愈透火愈猛，soah燒tio̍h伊khi̍p火種ê hit支正腳，ko͘-put-lī-chiang趕緊kā火種換到tò腳，ân-ân ka挾tiâu--leh，千萬m̄-thang phah ka-la̍uh去，飛愈緊，火愈猛，tò腳已經擋bē-tiâu--ā，無用嘴pe來咬bē-sái--chit，尾á伊用嘴pe咬hit支火種，歸尾總是ka咬轉來部落，kui-ê部落ê性命自án-ne得tio̍h解救，ta̍k-ê歡喜kah目屎流目屎滴，lóng來感謝Qepis ê勇敢kap恩情，siáⁿ知Qepis看tio̍h Bunun ê族人得tio̍h解救了後，soah死死暈暈去，ta̍k-ê趕緊倚來關心慰問，chiah知影tang時á Qepis ê兩支腳骨kap hit支嘴pe，已經去hō͘火燒kah紅kì-kì，kui身軀ê鳥毛mā hō͘火燻燻kah烏sô-sô，尾á chhiàⁿ醫生來ka醫治，chiah回復Qepis ê健康，m̄-koh伊hit兩支腳骨kap hit支嘴pe kap身軀邊ê羽毛，soah從án-ne無koh回復伊原來ê模樣，看起來soah kài sêng烏鶖--leh，所以chit-mái有人叫伊紅嘴烏鶖，mā有人稱呼伊âng-chhùi-pit-á。
 

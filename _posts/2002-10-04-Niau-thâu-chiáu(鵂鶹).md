@@ -21,9 +21,9 @@ toc: true
 ![](../too5/22/22-4-1.鵂鶹.jpg)
 
 
-Taenioptynx brodiei是台灣貓頭鳥類siāng-kài細隻ê貓頭鳥，是台灣特有亞種，普遍hioh-tī中低海拔闊葉林a̍h-sī針闊葉混合林，體形比粟鳥á較大chi̍t-sut-á niā-niā，chiok古錐--ê。因為細隻古錐，mā號做sió-niau-thâu-chiáu。
+Taenioptynx brodiei是台灣貓頭鳥類siāng-kài細隻ê貓頭鳥，是台灣特有亞種，普遍hioh-tī中低海拔闊葉林a̍h-sī針闊葉混合林，體形比粟鳥仔較大chi̍t-sut-á niā-niā，chiok古錐--ê。因為細隻古錐，mā號做sió-niau-thâu-chiáu。
 
-Sió-niau-thâu-chiáu（Taenioptynx brodiei）sui-bóng是暗光鳥，日--時mā-ē出來活動，鳥毛花花有保護色，tiām-tiām bih-tī樹椏看--起-來ná樹lui，oh tit khoàiⁿ，hèng食niáu鼠、細隻鳥á、蟲thōa a̍h-sī大隻昆蟲。
+Sió-niau-thâu-chiáu（Taenioptynx brodiei）sui-bóng是暗光鳥，日--時mā-ē出來活動，鳥毛花花有保護色，tiām-tiām bih-tī樹椏看--起-來ná樹lui，oh tit khoàiⁿ，hèng食niáu鼠、細隻鳥仔、蟲thōa a̍h-sī大隻昆蟲。
 
 M̄-thang kioh-sī Taenioptynx brodiei貓頭鳥細隻真古錐，個性khiok-sī ok-khia̍k-khia̍k hiông-kài-kài，伊ê頭殼ē-sái-tit 270度tńg-se̍h，後斗殼á koh有兩蕊假目chiu，實在是細隻動物ê剋星。
 

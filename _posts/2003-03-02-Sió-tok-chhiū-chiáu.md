@@ -20,7 +20,7 @@ toc: true
 ![](../too5/27/27-2-3.Sió-tok-chhiū-chiáu.jpg)
 
 
-Sió-tok-chhiū-chiáu是台灣特有亞種，是小型啄樹鳥。體型比粟鳥á大chi̍t-sut-á，是siāng細隻ê啄樹鳥。
+Sió-tok-chhiū-chiáu是台灣特有亞種，是小型啄樹鳥。體型比粟鳥仔大chi̍t-sut-á，是siāng細隻ê啄樹鳥。
 
 Sió-tok-chhiū-chiáu鳥毛烏chhap白，koh有樹á皮黃，chhap kah hoe-pa-lí-niau，是chiok讚ê保護色，sui-bóng是真普遍在地鳥，總--是無容易發現。
 

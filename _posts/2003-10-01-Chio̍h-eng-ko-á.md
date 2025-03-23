@@ -38,7 +38,7 @@ Lóng-sī台灣時常khoàiⁿ--tio̍h，in lóng kah意食肉chē有汁ê果子
 
 ### Bunun ê習俗
 
-Gín-á開始學行學講話，ē-hiáu食固體食物時，lia̍h石eng-ko-á、番薯á鳥、bi̍t-lô-á，ho͘烘鳥á-pa á-sī tīm鳥á肉hō͘ gín-á食，講án-ne gín-á真緊to̍h ē-hiáu講話，因為chia-ê鳥á lóng真gâu háu。
+Gín-á開始學行學講話，ē-hiáu食固體食物時，lia̍h石eng-ko-á、番薯á鳥、bi̍t-lô-á，ho͘烘鳥仔-pa á-sī tīm鳥仔肉hō͘ gín-á食，講án-ne gín-á真緊to̍h ē-hiáu講話，因為chia-ê鳥仔lóng真gâu háu。
 
 ![](../too5/34/34-1-2.Chio̍h-eng-ko-á.jpg)
 ![](../too5/34/34-1-4.Chio̍h-eng-ko-á.jpg)

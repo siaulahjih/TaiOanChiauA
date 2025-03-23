@@ -1,6 +1,6 @@
 ---
 chapter: 48. Bûn-chiáu Kho『文鳥科』
-title: 48-1. Chhek-chiáu-á（粟鳥á）
+title: 48-1. Chhek-chiáu-á（粟鳥仔）
 author: Siau Lah-jih
 date: 2004-12-01    
 category: chheh
@@ -13,17 +13,17 @@ toc: true
 
 
 |台灣名|中譯名|學名|
-|Chhek-chiáu-á（粟鳥á）|麻雀|Passer montanus|
+|Chhek-chiáu-á（粟鳥仔）|麻雀|Passer montanus|
 
 
-# 48-1. Chhek-chiáu-á（粟鳥á）
+# 48-1. Chhek-chiáu-á（粟鳥仔）
 
 ![](../too5/48/48-1-4.Chhek-chiáu-á.jpg)
 
 
-Chhek-chiáu-á，tī台灣除了高山、森林以外，平洋所在有人tòa、有火燻，to̍h有伊ê蹤跡。通常做siū tī城市、田庄所在人家厝ê竹管縫、瓦縫內，kap人tòa做夥，是典型kap人共居ê鳥類，所以hō͘人號做厝鳥á。
+Chhek-chiáu-á，tī台灣除了高山、森林以外，平洋所在有人tòa、有火燻，to̍h有伊ê蹤跡。通常做siū tī城市、田庄所在人家厝ê竹管縫、瓦縫內，kap人tòa做夥，是典型kap人共居ê鳥類，所以hō͘人號做厝鳥仔。
 
-田庄稻á收成前後，ē siâⁿ來kui百kui千hèng食粟ê chhek-chiáu-á來討食，m̄-nā tī田裡食粟á，mā tī門口埕、曝粟埕偷食五穀，對作田人來講，損斷siong-tiōng，hō͘人頭痛，趕鳥á soah chiâⁿ做gín-á人ê khang-khòe，m̄-chiah hō͘作田人號做粟鳥á。
+田庄稻á收成前後，ē siâⁿ來kui百kui千hèng食粟ê chhek-chiáu-á來討食，m̄-nā tī田裡食粟á，mā tī門口埕、曝粟埕偷食五穀，對作田人來講，損斷siong-tiōng，hō͘人頭痛，趕鳥仔soah chiâⁿ做gín-á人ê khang-khòe，m̄-chiah hō͘作田人號做粟鳥仔。
 
 生活tī都市ê野生動物，tùi環保貢獻siāng大--ê to̍h是chhek-chiáu-á，in一年thàng天kap人tòa做夥，lia̍h食咱生活環境ê各種害蟲，ka-cho̍ah、蜘蛛、胡蠅…，a̍h是屍體ê蟲，真正替咱解決真chē問題。
 

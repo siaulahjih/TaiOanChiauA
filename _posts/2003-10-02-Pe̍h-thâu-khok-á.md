@@ -20,7 +20,7 @@ toc: true
 ![](../too5/34/34-2-1.Pe̍h-thâu-khok-á.jpg)
 
 
-Pe̍h-thâu-khok-á，tī台灣平地siāng kài-chia̍p khoàiⁿ--tio̍h，chiâⁿ普遍ê鳥á，頭殼頂有一chhop白毛，pe̍h-thâu-khok-á、pe̍h-thâu-khok-á，to̍h án-ne叫tiâu名。
+Pe̍h-thâu-khok-á，tī台灣平地siāng kài-chia̍p khoàiⁿ--tio̍h，chiâⁿ普遍ê鳥仔，頭殼頂有一chhop白毛，pe̍h-thâu-khok-á、pe̍h-thâu-khok-á，to̍h án-ne叫tiâu名。
 
 Pe̍h-thâu-khok-á，ki-ki kā-kā，叫聲真吵，m̄-kuh真好聽，千變萬化，有時孤單哀怨，有時kho͘-si-á ná唱歌，歇tī樹尾頂，無張無持白膏li ê屎尿ùi空中lak--lo̍h-lâi，hō͘人a̍h好氣a̍h好笑，ná-ē chiah tú好，來去買彩卷包ē-tio̍h。
 
@@ -40,7 +40,7 @@ Pe̍h-thâu-khok-á台灣亞種是在地鳥。
 |O͘-thâu-khok-á（烏頭Khok-á）|烏頭翁|Pycnonotus taivanus|
 |Pe̍h-thâu-khok-á（白頭Khok-á）|白頭翁|Pycnonotus sinensis|
 
-台灣特有種烏頭khok-á外形kap白頭khok-á chiâⁿ kāng-khoán，差別tī頭殼。O͘-thâu-khok-á kan-nā台東、花蓮、恆春半島有，原本chit兩種鳥á分別tòa兩位，無相交插，因為交通因素hām無妥當ê放生，sòa漸漸sio-lām雜交生湠共同特徵ê灰頭khok-á。
+台灣特有種烏頭khok-á外形kap白頭khok-á chiâⁿ kāng-khoán，差別tī頭殼。O͘-thâu-khok-á kan-nā台東、花蓮、恆春半島有，原本chit兩種鳥仔分別tòa兩位，無相交插，因為交通因素hām無妥當ê放生，sòa漸漸sio-lām雜交生湠共同特徵ê灰頭khok-á。
 
 
 # 【Tâi-oân Chiáu-á Liām Koa-si】

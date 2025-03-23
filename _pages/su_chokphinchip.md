@@ -13,7 +13,7 @@ layout: post
 - [《台灣俗語鹹酸甜》（第二冊）](https://siaulahjih.github.io/KiamSngTinn2/)
 - [《台灣俗語鹹酸甜》（第三冊）](https://siaulahjih.github.io/KiamSngTinn3/)
 - [《台灣俗語鹹酸甜》（第四冊） 前衛出版社](http://www.avanguard.com.tw/m/2001-1609-835620-1.php)
-- [《還我台灣鳥á名》](https://siaulahjih.github.io/TaiOanChiauA/)
+- [《還我台灣鳥仔名》](https://siaulahjih.github.io/TaiOanChiauA/)
 - [《Lah-jih身世kap親人》 前衛出版社](http://www.avanguard.com.tw/m/2001-1609-951274-1.php)
 
 ## 網站

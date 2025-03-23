@@ -23,7 +23,7 @@ toc: true
 
 Tn̂g-bóe-soaⁿ-niû，俗稱山娘á，紅嘴pe、紅腳骨、金藍色身軀，頭、ām烏色，尾長長烏插白、金藍花紋，非常súi，tī低山區樹林頂面，三五隻七八隻排一列，ùi山坪向山坑á直線飛行，排成一chōa長尾陣，chiâⁿ做美麗隊伍。
  
-Tn̂g-bóe soaⁿ-niû本性兇惡，háu聲噪人耳，雜食性，食大型蟲thōa、細隻鳥á、鳥á-kiáⁿ kap鳥á卵、野鼠、杜定、蛙類，koh-khah hèng食木瓜hit款果子。做siū tī原始雜木林，一siū生4~6隻鳥á-kiáⁿ，鳥á-kiáⁿ孵出了後，親鳥特別pháiⁿ，兇kài-kài，kā頭殼ām-kún ê羽毛kek chhàng-chhàng，háⁿ敵人侵入。
+Tn̂g-bóe soaⁿ-niû本性兇惡，háu聲噪人耳，雜食性，食大型蟲thōa、細隻鳥仔、鳥仔-kiáⁿ kap鳥仔卵、野鼠、杜定、蛙類，koh-khah hèng食木瓜hit款果子。做siū tī原始雜木林，一siū生4~6隻鳥仔-kiáⁿ，鳥仔-kiáⁿ孵出了後，親鳥特別pháiⁿ，兇kài-kài，kā頭殼ām-kún ê羽毛kek chhàng-chhàng，háⁿ敵人侵入。
 
 
 

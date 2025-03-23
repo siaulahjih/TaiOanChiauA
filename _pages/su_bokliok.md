@@ -274,7 +274,7 @@ layout: post
 
 ### 32. Chit-lêng Kho『鶺鴒科』
 
-[32-1. Gû-sái-chiáu-á（牛屎鳥á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-08-01.html)
+[32-1. Gû-sái-chiáu-á（牛屎鳥仔）](https://siaulahjih.github.io/TaiOanChiauA/chheh/03-08-01.html)
 
 ### 33. Soaⁿ-chiau-chiáu Kho『山椒鳥科』
 
@@ -404,7 +404,7 @@ layout: post
 
 ### 48. Bûn-chiáu Kho『文鳥科』
 
-[48-1. Chhek-chiáu-á（粟鳥á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-12-01.html)
+[48-1. Chhek-chiáu-á（粟鳥仔）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-12-01.html)
 
 [48-2. O͘-chhùi-pit-á（烏嘴Pit-á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/04-12-02.html)
 
@@ -414,7 +414,7 @@ layout: post
 
 ### 49. Chhiok Kho『雀科』
 
-[49-1. Âng-chiáu-á（紅鳥á）](https://siaulahjih.github.io/TaiOanChiauA/chheh/05-01-01.html)
+[49-1. Âng-chiáu-á（紅鳥仔）](https://siaulahjih.github.io/TaiOanChiauA/chheh/05-01-01.html)
 
 [49-2. O͘-bīn-kâu（烏面猴）](https://siaulahjih.github.io/TaiOanChiauA/chheh/05-01-02.html)
 

@@ -21,7 +21,7 @@ toc: true
 ![](../too5/42/42-4-10.Tek-kha-hoe-bî.jpg)
 
 
-Éng-kòe咱tau竹圍厝地真闊，四kho͘圍除了刺竹模iáu有燈藍á花籬笆。He燈藍á花籬笆時常出現一種鳥á tiàm hia跳來跳去，記智中原來to̍h是tek-kha-hoe-bî。
+Éng-kòe咱tau竹圍厝地真闊，四kho͘圍除了刺竹模iáu有燈藍á花籬笆。He燈藍á花籬笆時常出現一種鳥仔tiàm hia跳來跳去，記智中原來to̍h是tek-kha-hoe-bî。
 
 Tek-kha-hoe-bî khah早chiok-ài tī刺竹圍、燈藍á花籬笆內面chhōe食、做siū、生湠。因為伊ê頭殼面容hoe-pa-lí-niau ná布袋戲尪á ê奸臣，hō͘人叫做奸臣á鳥。
  
